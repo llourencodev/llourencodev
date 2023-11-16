@@ -1,4 +1,4 @@
-### Hi! I'm Leandro Lourenco 🖐🏽
+### Hi! I am Leandro Lourenco 🖐🏽
 
 💼 Hiper Software (Linx&StoneCo)
 
